@@ -1,1 +1,1 @@
-Various notes: huyvohcmc.memos.pub/notes
+Various notes: https://huyvohcmc.memos.pub/notes
